@@ -2,8 +2,8 @@
 Former Game Dev now working as a Full Stack Web Dev.
 
 ⚡ Interesting Stuff: 
-- I like drawing 🖌🎨
-- Goes gym (Zyzz my GOAT) 🏋️‍♀️ 💪
+- I like drawing in my spare time (mostly anime) 🖌🎨
+- Grindset the gym 🏋️‍♀️ 💪
 
 # 🏢 Experiences
 | Roles | Company | Duration |
